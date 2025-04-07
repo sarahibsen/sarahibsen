@@ -3,7 +3,7 @@
 💻 As well as an IT Specialist in the Army! <br/> 
 
 🧠 Currently pursuing my Bachelors in Computer Science, with a minor in 🎨 Art Studio (because I love using tech to create art!) at the University of Alabama in Huntsville (Dec. 2025) <br/>
-📹 I make videos on [Instagram](www.instagram.com/tullibeee) and post a lot of my photography content on there! <br/>
+📹 I make videos on [Instagram](https://instagram.com/tullibeee) and post a lot of my photography content on there! <br/>
 
 
 
